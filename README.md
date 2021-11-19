@@ -1,0 +1,1 @@
+# Termux-Script-untuk-Apk-penghasil-uang
